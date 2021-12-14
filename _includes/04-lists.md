@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Music :heart:
+* Movie :heart:
+* Game :heart:
+*  Sleep :smile:
